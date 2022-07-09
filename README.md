@@ -41,6 +41,10 @@ https://user-images.githubusercontent.com/105720751/178102122-087b6e47-91b9-42c6
 ![T61 ZW{DPPZ8JQQ(KA_3%90](https://user-images.githubusercontent.com/105720751/178102129-4bcd1503-80a4-45f1-a9ca-21c99791543c.jpg)
 
 
+https://user-images.githubusercontent.com/105720751/178102427-32f3a4a7-9c11-4a1e-b827-1c5cc98de9d4.mp4
+
+
+
 QQ：2021517400
 
 更多好看的六二班梗图请发至此QQ
